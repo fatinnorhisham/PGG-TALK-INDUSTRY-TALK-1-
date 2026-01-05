@@ -51,3 +51,5 @@ perspective on how paints and coatings contribute to safety, sustainability, and
 technological advancement. The session also motivated me to explore future career
 opportunities in materials science, chemical technology, and industrial innovation.
 
+## **POSTER**
+![image alt](https://github.com/fatinnorhisham/PGG-TALK-INDUSTRY-TALK-1-/blob/c69472fb306ae858634e20d839b62876209ffceb/TIS%20ASSIGNMENT%202_page-0001.jpg)<br>
